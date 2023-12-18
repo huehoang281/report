@@ -1,0 +1,1 @@
+document for SpringCore https://bapjsc-my.sharepoint.com/:w:/r/personal/loint_bap_jp/_layouts/15/Doc.aspx?sourcedoc=%7BB1500335-F30F-4114-806C-4E123A4B15FD%7D&file=hueht_Spring%20CoreReport.docx&action=default&mobileredirect=true
